@@ -1,4 +1,4 @@
-## Olá!! Me chamo Arthur Albuquerque. 👋😃
+## Hey!! I'm Arthur Albuquerque. 👋😃
 
 <div align="center">
   <a href="https://github.com/arthuralbuquerquem">
